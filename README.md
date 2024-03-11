@@ -1,1 +1,1 @@
-Crafting Compelling Web Presences
+Crafting Compelling Web Presences - There is so much that can be a part of your web presence. An online presence is any existence of an individual or business that can be found via an online search. An example of an individual who is not active on the Internet but who has a online presence is one who is a member of an association that has a member directory listing online.
