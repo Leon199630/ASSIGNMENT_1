@@ -1,2 +1,1 @@
-# ASSIGNMENT_1
-COMPELLING WEB PRESENCE
+Crafting Compelling Web Presences
